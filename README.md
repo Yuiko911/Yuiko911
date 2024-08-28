@@ -1,5 +1,5 @@
 ### Hello 🙌
-I'm Yuiko! Welcome to my *personal* account
+I'm [Yuiko](https://gist.github.com/Yuiko911)! Welcome to my *personal* account
 
 ### Who ? 
 - 🤓 Engineering Student @ [REDACTED]
